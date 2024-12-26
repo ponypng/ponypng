@@ -18,10 +18,10 @@
 </p>
 
 <p align="center">
-  hihi! ^^ You can call me sombra or haunt, or any nickname you wish to give me 
+  hihi! ^^ You can call me sombra or haunt || C + h friendly
   <img src="https://64.media.tumblr.com/bee4cb224b864e6f94053d0fe15d2eb8/94a499c86d1ab7b1-35/s75x75_c1/fa0d134191a10409da3999e9ab73a57162f19817.gifv" alt="image">
+<p align="center">
+<img src="https://64.media.tumblr.com/52201b4bb79e735dc296c0e0b42a40b3/67280e8b1a696d5e-b7/s75x75_c1/8351dac6faabb62996b9c663eca3495f4671b087.gifv" alt="image">
 </p>
 <p>
-<p align="center">
-    <img src="https://64.media.tumblr.com/52201b4bb79e735dc296c0e0b42a40b3/67280e8b1a696d5e-b7/s75x75_c1/8351dac6faabb62996b9c663eca3495f4671b087.gifv" alt="image">
-    any pronouns as well!
+
