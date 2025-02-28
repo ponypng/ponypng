@@ -1,12 +1,12 @@
 <p align="center">
-    <img src="https://64.media.tumblr.com/b7c5b08fe49b9ff38edb25d175c0f847/6c4ac82bc23711e8-e3/s1280x1920/f0228e00251269be3b3a2b6d0d657b2f56876d72.pnj">
+    <img src="https://files.catbox.moe/7p1c7b.png">
 </p>
 <p align="center">
-    <img src="https://file.garden/Z3fis1xsb21HAp-V/textt.png">
-    <img src="https://file.garden/Z3fis1xsb21HAp-V/redtexttiayya.png">
+<img src="https://txt.1001fonts.net/img/txt/dHRmLjI0LjlkOWJmMC5lVzkxSUdOaGJpQmpZV3hzSUcxbElITnZiV0p5WVNCdmNpQnZiV0Z5YVNFLjA/droid-sans-mono.regular.webp">
 </p>
 <p align="center">
-    <img src="https://file.garden/Z3fis1xsb21HAp-V/tumblr_595491d1ca2a9d32b05ce46505ee3df3_e2206541_1280%20(2)%20(1).png">
+<img src="https://txt.1001fonts.net/img/txt/dHRmLjI0LmNkOWFmZi5ZVzU1SUhCeWIyNXZkVzV6SUNzcklIVnViR0ZpWld4bFpBLjA/droid-sans-mono.regular.webp">
 </p>
-
-
+<p align="center">
+<img src="https://txt.1001fonts.net/img/txt/dHRmLjI0Ljg4ZWVmZi5ZV3gzWVhseklHTXJhQ0JtY21sbGJtUnNlU3dnYm1WMlpYSWdhWGRqSURvei4w/droid-sans-mono.regular.webp">
+</p>
